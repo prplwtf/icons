@@ -1,1 +1,1 @@
-[![prpliconssmall](https://github.com/prplwtf/icons/assets/103201875/1b8eabb7-14bf-4f42-b0f1-1046e6965279)](https://icons.prpl.wtf)
+![](https://github.com/prplwtf/icons/assets/103201875/055662d9-cd6d-4449-b600-2308ad0b73c8)
